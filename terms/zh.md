@@ -60,4 +60,4 @@ CardioWatch 中的所有内容、设计、算法和代码均为 NeuPeak Studio �
 
 如果您对本条款有任何疑问，请联系我们：
 
-**邮箱：** support@neupeakstudio.com
+**邮箱：** tiefengxiao@gmail.com

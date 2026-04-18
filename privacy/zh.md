@@ -71,7 +71,7 @@ CardioWatch 不适用于 17 岁以下的儿童。我们不会有意收集儿童�
 
 如果您对本隐私政策有任何疑问，请通过以下方式联系我们：
 
-**邮箱：** support@neupeakstudio.com
+**邮箱：** tiefengxiao@gmail.com
 
 ---
 

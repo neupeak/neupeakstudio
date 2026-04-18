@@ -60,4 +60,4 @@ These Terms shall be governed by and construed in accordance with the laws of th
 
 For questions regarding these Terms, contact us at:
 
-**Email:** support@neupeakstudio.com
+**Email:** tiefengxiao@gmail.com
